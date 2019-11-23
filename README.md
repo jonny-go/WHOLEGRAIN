@@ -1,2 +1,2 @@
 # WHOLEGRAIN
-WHOLELGRAIN - 100% Vollkorn - Granularsynthese 
+WHOLELGRAIN - 100% Vollkorn - Granularsynthese - Roggen Roll
